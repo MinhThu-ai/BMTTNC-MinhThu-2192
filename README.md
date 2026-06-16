@@ -1,3 +1,2 @@
-# LAB_01
+2380602192_NguyenMinhThu_23DTHB4_BMTTNC
 
-Day la project dau tien cua toi dua len GitHub.
